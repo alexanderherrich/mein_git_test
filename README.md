@@ -2,4 +2,4 @@
 
 ## Hallo, Sergej.
 
-Sergej, kako si?
+Sergej, kako si? Das ist BKS.
